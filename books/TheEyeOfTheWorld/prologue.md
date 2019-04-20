@@ -3,7 +3,7 @@ layout: page
 title: Prologue - Dragonmount
 ---
 
-The series begins in a palace that is shaking and crumbling.  Dead bodies of men, women, and children are lying everywhere. A man named Lews Therin Telamon is wandering around, calling for his wife Ilyena.  It's clear that something is wrong with Lews Therin, since despite the devestation, he laughs delightedly while calling for his wife. He has a symbol on his cloak, "a circle half white and half black, the colors separated by a sinuous line".
+The series begins in a palace that is shaking and crumbling.  Dead bodies of men, women, and children are lying everywhere. A man named Lews Therin Telamon is wandering around, calling for his wife Ilyena.  It's clear that something is wrong with Lews Therin, since despite the devastation, he laughs delightedly while calling for his wife. He has a symbol on his cloak, "a circle half white and half black, the colors separated by a sinuous line".
 
 A man dressed in black magically appears and calls for Lews Therin, naming him "Lord of the Morning."  When Lews Therin greets him as a guest, the man in black realizes "the taint" has made Lews Therin insane.  He curses (using the name Shai'tan), and demands for Lews Therin to remember what has happened.
 
@@ -19,7 +19,7 @@ Lews Therin tells Betrayer that since Elan killed his wife Ilyena, he will "dest
 
 Now Lews Therin remembers and howls in grief and rage.  In his madness, he was the one who killed his whole family.  He can't stand it anymore and uses the "True Source", "tainted *saidin*", and Travels to a different location.
 
-Kinslayer calls out to the Light to forgive him but doesn't believe he can be forgiven.  He reflects on *saidin*, which is the "male half of the power that drove the universe, that turned the Wheel of Time".  He knows *saidin* was tainted by "the Shadow's counterstroke", and he knows it's his own fault.  He has doomed the world because he believed that men could "mend what the Creater had made".
+Kinslayer calls out to the Light to forgive him but doesn't believe he can be forgiven.  He reflects on *saidin*, which is the "male half of the power that drove the universe, that turned the Wheel of Time".  He knows *saidin* was tainted by "the Shadow's counterstroke", and he knows it's his own fault.  He has doomed the world because he believed that men could "mend what the Creator had made".
 
 Lews Therin draws more of the One Power "than he could channel unaided" and tries to draw it all.  He screams "Light, forgive me! Ilyena!" and calls down a giant bolt of white hot fire out of the heavens directly at himself.  It completely obliterates him and drills deep into the earth.  Immediately, lava begins to shoot out of it, blasting higher and higher, forming into a very tall mountain.  Far to the side of the mountain, a nearby river is disrupted and splits into two with an island in the middle.
 
